@@ -3,6 +3,8 @@
 I LOVE RPF!!!!!!
 <br>
 ![me and my wife](https://files.catbox.moe/lbontw.gif)
+<br>
+monthly music - [october](https://open.spotify.com/playlist/1k7v2ABG2GZeAdQBQ1fsN7), [november](https://open.spotify.com/playlist/2FEZmtWZHHbpSvZzSydaft), [december](https://open.spotify.com/playlist/3BW6CMGHLzWPUfK1VuUN4t), [january](https://open.spotify.com/playlist/4JcHLyBcDb1yyBEkND65zz)
 
 <!--
 **inspirals/inspirals** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
