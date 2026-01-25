@@ -2,7 +2,7 @@
 <br>
 brian jones jimmy page carl palmer mick taylor daughter
 <br>
-if we share any interests please talk to me about them! i don't bite i promise ^_^
+read my rentry!!!! if we share any interests please talk to me about them   i don't bite i promise ^_^
 <br>
 ![me and my wife](https://files.catbox.moe/lbontw.gif)
 <br>
